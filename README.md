@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SuperGirl2355
-- 👀 I’m interested in learning new conceps
+- 👀 I’m interested in learning new concepts
 - 🌱 I’m currently learning the fundamentals of web designing
 - 💞️ I’m looking to collaborate on the importance of tecnology and robotics in the upcoming future
 - 📫 How to reach me is using my email adress which is supergirl2355@protonmail.com
